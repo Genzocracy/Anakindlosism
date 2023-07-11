@@ -1,6 +1,12 @@
 # Anakindlosism
+The purpose must be understood first. One cannot present morality nor cosmology before explaining the purpose for writing it. In an arguement for a grand teleology, the discussion must initiate from teleology. However, the purpose of this book must strive to include those who do not consider teleological means. If we cannot provide a modicum of insight to both theist and atheist alike, then this fails. If we cannot provide a modicum of insight to both gnostic and agnostic alike, then this fails. However, if the strident refuses to read, and refuses to take up and challenge what is herein, then those who speak to what they haven't read can be taken as a guide leading you around a path they have never been down.
+
+Those with eyes to see, see the light going out. Those with ears to hear have heard the cries of fear. Some see the light going out and desire to relight it, others fear what they may see when there is enought light to peer past the shadows. There is also a third group that feel more comfortable in the dark, because of what activities they can perform when they cannot be seen. Those that sit back in fear, continue to cling to the words of those that wish for the dark, telling them that they are right to fear what will be shown. In this decade, we argue whether we should see at all, and about how much responsibility we could avoid if we just stayed in the dark.
 
 The term "anakindlosism" lends to the archaic Greek words "ana-" meaning "again", and "kindulos" meaning "lamp", serving to elucidate the meaning "relighting" which is the aim of this book, to attempt to reveal again to humanity what unites them within this creation. We have been through various enlightenments, which have illuminated our paths and seared structures into our memories and our imaginations, but we must now proceed from the match to the candle, and then from the candle to the oil-lamp. Let it be known to all that our enlightenment of our surroundings does not come anywhere near to full lighting, and that there is so much more left to see. Anyone reading these words with the belief that we know all that is to be known will trip and fall. Anyone reading these words with the belief that the mysteries are inaccessible to us will hide in the corner. These words are intended for those who know there is more to see, who who are excited to proceed through the exploration.
+
+
+
 
 
 This is written by humans, inspired by thoughts on the divine.
